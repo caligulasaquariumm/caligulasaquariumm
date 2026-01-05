@@ -1,9 +1,11 @@
-  　　　   　  　　　   　c+h freely unless stated .  ships iwc  .  i lluv my bf !!!  . proship dni  . w2i  most times !
-    
-    
-　　   　　　   　　　   　![bf78798e4f547f4c6b5b06e7f4c0b54c](https://github.com/user-attachments/assets/da8938b6-d00e-46b4-ab12-fe053cfd6e58)
+  　　　 　   　  　　　  　  　  　ᶜ⁺ʰ ᶠʳᵉᵉˡʸ ᵘⁿˡᵉˢˢ ˢᵗᵃᵗᵉᵈ .  ˢʰⁱᵖˢ ⁱʷᶜ  .  ⁱ ˡˡᵘᵛ ᵐʸ ᵇᶠ !!!  . ᵖʳᵒˢʰⁱᵖ ᵈⁿⁱ  . ʷ²ⁱ  ᵐᵒˢᵗ ᵗⁱᵐᵉˢ !
 
-　 　　　   　　 　　　   　  　　   　　   　　sign my [ata](https://riddledbatz.atabook.org/)  ! 
+    
+    
+　　   　　　   　　　   ![dfsr9qu-002ca5b8-1f12-4e6b-a8a7-8342927397fa](https://github.com/user-attachments/assets/21eff0eb-d53c-4e67-801a-da53601b8525)
+
+
+　 　　　   　　 　　　   　  　　   　　   　　​🇸​​🇮​​🇬​​🇳​  ​🇲​​🇾​ [​🇦​​🇹​​🇦](https://riddledbatz.atabook.org/)  ! 
 
            　　   　　   　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  
 
