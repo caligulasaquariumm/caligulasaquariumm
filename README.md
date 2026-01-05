@@ -2,7 +2,7 @@
 
     
     
-　　   　　　   　　　   ![dfsr9qu-002ca5b8-1f12-4e6b-a8a7-8342927397fa](https://github.com/user-attachments/assets/21eff0eb-d53c-4e67-801a-da53601b8525)
+　　   　　　   　  　　![dfsr9qu-002ca5b8-1f12-4e6b-a8a7-8342927397fa](https://github.com/user-attachments/assets/21eff0eb-d53c-4e67-801a-da53601b8525)
 
 
 　 　　　   　　 　　　   　  　　   　　   　　​🇸​​🇮​​🇬​​🇳​  ​🇲​​🇾​ [​🇦​​🇹​​🇦](https://riddledbatz.atabook.org/)  ! 
