@@ -1,10 +1,9 @@
-  　　　 　   　  　　　  　    　  　  　  𝗒𝗈𝗎𝗋𝖾       𝖼𝗋𝖺𝗌𝗁𝗂𝗇𝗀       𝖻𝗎𝗍       𝗇𝗈       𝗐𝖺𝗏𝖾
-
+<p align="center">$\color{#E54BCD}{\textsf{ ׄ◟  ᣟ ͜͜ ੭　    𝗒𝗈𝗎𝗋𝖾       𝖼𝗋𝖺𝗌𝗁𝗂𝗇𝗀       𝖻𝗎𝗍       𝗇𝗈       𝗐𝖺𝗏𝖾  𝅄}}$</p>
     
     
 　　   　　　   　  　　![dfsr9qu-002ca5b8-1f12-4e6b-a8a7-8342927397fa](https://github.com/user-attachments/assets/21eff0eb-d53c-4e67-801a-da53601b8525)
 
-　 　　　   　　 　　　   　  　  　  　𝙥𝙡𝙪𝙧𝙖𝙡   ,,  𝙖𝙨𝙠4𝙥𝙧𝙣𝙨  &  𝙛𝙧𝙤𝙣𝙩
+<p align="center">$\color{#E54BCD}{\textsf{𝙥𝙡𝙪𝙧𝙖𝙡   ,,  𝙖𝙨𝙠4𝙥𝙧𝙣𝙨  and  𝙛𝙧𝙤𝙣𝙩𝅄}}$</p>
 
 
 
