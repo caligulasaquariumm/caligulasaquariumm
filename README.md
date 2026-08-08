@@ -1,16 +1,17 @@
-<p align="center">$\color{#E54BCD}{\textsf{ ׄ◟  ᣟ ͜͜ ੭　    𝗒𝗈𝗎𝗋𝖾       𝖼𝗋𝖺𝗌𝗁𝗂𝗇𝗀       𝖻𝗎𝗍       𝗇𝗈       𝗐𝖺𝗏𝖾  𝅄}}$</p>
-    
-    
-　　   　　　   　  　　![dfsr9qu-002ca5b8-1f12-4e6b-a8a7-8342927397fa](https://github.com/user-attachments/assets/21eff0eb-d53c-4e67-801a-da53601b8525)
-
-<p align="center">$\color{#E54BCD}{\textsf{𝙥𝙡𝙪𝙧𝙖𝙡   ,,  𝙖𝙨𝙠4𝙥𝙧𝙣𝙨  and  𝙛𝙧𝙤𝙣𝙩𝅄}}$</p>
-
-
-
-           　　   　　   　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)  
-
-
-
+<div align="center">
+  <table>
+    <tr>
+      <td><img src="https://i.postimg.cc/zXVb7FKv/tumblr-b6033c46ab1e6781c54f4b63235080c9-dd5e03d0-2048-removebg-preview-(1).png" width="2650" height="2355"> </td>
+      <td> 
+        <a href="link"> <img src="https://i.postimg.cc/MK62J9d0/1.png" width="75%" > </a>
+          <br/> </br/>
+        <a href="link"> <img src="https://i.postimg.cc/bNycfm3Q/2.png" width="75%"> </a>
+          <br/> </br/>
+        <a href="link"> <img src="https://i.postimg.cc/bNycfm3x/3.png" width="75%"> </a>
+      </td>
+    </tr>
+  </table>
+</div>
 
 
 
